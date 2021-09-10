@@ -5,13 +5,13 @@ Google Team Drive , Shared Drive Creator Website List
 
 https://td.msgsuite.workers.dev/
 
-https://team.gdrive.vip/
+https://team.gdrive.vip/ (不定时删除)
 
 https://td.1tb.fun/
 
 https://td.crackhub.site/
 
-https://team.leehaiha.com/
+~~https://team.leehaiha.com/~~
 
 Welcome PR , Star .
 

@@ -11,7 +11,7 @@ https://td.1tb.fun/
 
 https://td.crackhub.site/
 
-https://td.ultraindex.workers.dev/
+
 
 https://perfectscripts.000webhostapp.com/GDrive/
 
